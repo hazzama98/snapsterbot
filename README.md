@@ -1,0 +1,2 @@
+# snapsterbot
+BOT AIRDROP SNAPSTER
